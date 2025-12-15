@@ -24,7 +24,7 @@ Die „Elite Fetish Lounge“ ist Teil dieses Netzwerks – ein Ort, an dem sowo
 
 ## Interview mit Marvin
 
-*Wir haben Marvin Vogt, Betreiber der Lounge und im besinnlichen Reinfeld in Schleswig Holstein aufgeachsen, über die Philosophie des Clubs, seine persönlichen Erfahrungen und seine Vorfreude auf die Eröffnung befragt.*
+*Wir haben Marvin Vogt, Betreiber der Lounge und im besinnlichen Reinfeld in Schleswig Holstein aufgewachsen, über die Philosophie des Clubs, seine persönlichen Erfahrungen und seine Vorfreude auf die Eröffnung befragt.*
 
 **Redaktion:** Marvin, die Lounge ist ein sehr spezielles Projekt. Wie kam es dazu?  
 **Marvin:** Schon seit vielen Jahren bin ich in der Szene aktiv. Ich habe zunächst private Veranstaltungen organisiert und dabei ein Netzwerk aufgebaut. Es wurde schnell klar, dass ein dauerhafter, sicherer Ort fehlt – ein Platz, an dem man Fantasie, Stil und Sicherheit kombinieren kann. Die Lounge ist das Ergebnis dieser Überlegungen.
@@ -36,7 +36,7 @@ Die „Elite Fetish Lounge“ ist Teil dieses Netzwerks – ein Ort, an dem sowo
 **Marvin:** Wir legen Wert auf Atmosphäre, Qualität und Sicherheit. Jeder Raum hat ein eigenes Thema, von stilvollen Rollenspielen über elegante Maskierungen bis hin zu Bereichen für Accessoires und Kleidung. Die Besucher können ihre Vorlieben innerhalb eines geschützten, legalen Rahmens ausleben. Es geht nicht um Masse oder Spektakel, sondern um gezielte, hochwertige Erfahrungen.
 
 **Redaktion:** Können Sie ein bisschen über Ihre eigenen Vorlieben erzählen?  
-**Marvin:** Ich bin seit Jahren Teil dieser Szene und habe meine eigenen Vorlieben ausgelebt, insbesondere das Schnüffeln an getragener Unterwäsche ist eine Vorliebe von mir. Es begeistert mich, dass wir in der Lounge einen Ort geschaffen haben, an dem ich und andere Gleichgesinnte unsere Fantasie ausleben können. Die Möglichkeit, seine Interessen zu entdecken und zu vertiefen, finde ich total spannend und aufregend.
+**Marvin:** Ich bin seit Jahren Teil dieser Szene und habe meine eigenen Vorlieben ausgelebt, insbesondere das Schnüffeln an getragener Unterwäsche ist eine besondere Vorliebe von mir. Es begeistert mich, dass wir in der Lounge einen Ort geschaffen haben, an dem ich und andere Gleichgesinnte unsere Fantasie ausleben können. Die Möglichkeit, seine Interessen zu entdecken und zu vertiefen, finde ich total spannend und aufregend.
 
 **Redaktion:** Wie sehen Sie die Rolle der Lounge innerhalb der Szene?  
 **Marvin:** Sie soll einen sicheren, stilvollen Raum bieten, in dem sich Menschen respektvoll begegnen. Es geht um Vertrauen, Kreativität und gegenseitige Rücksichtnahme. Ich hoffe, dass wir hier eine Community aufbauen, in der sich jeder willkommen fühlt, der seine Vorlieben legal und einvernehmlich ausleben möchte.
